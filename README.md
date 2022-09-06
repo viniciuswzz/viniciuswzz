@@ -1,3 +1,3 @@
-- i love my gf 🌑
+- i love my gf  💍
 - guaratuba 👤
 - 15 y 🦇
