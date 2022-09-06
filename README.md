@@ -1,3 +1,3 @@
-i love my gf <3
-guaratuba
-15y
+- i love my gf
+- guaratuba
+- 15 y
